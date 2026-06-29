@@ -130,6 +130,8 @@
 
 [**Πρόσκληση Λουλουδένιας 5**](https://youtube.com/shorts/6iS4d5pKMrU)
 
+[**Προετοιμασία του χάρτη**](https://www.canva.com/design/DAHMirtnnkY/OanV1R4vItMY1XsGWjKrHg/view?utm_content=DAHMirtnnkY&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h2d4b11ae32)
+
 *Αφίσα για την Παιδική Χαρά*
 
 ![image](https://github.com/MargaritaSamoutian/meowmission/blob/main/%CE%91%CF%86%CE%AF%CF%83%CE%B1%20%CE%A0%CE%B1%CE%B9%CE%B4%CE%B9%CE%BA%CE%AE%20%CE%A7%CE%B1%CF%81%CE%AC_2%CE%BF%20%CE%9D%CE%B7%CF%80%CE%B9%CE%B1%CE%B3%CF%89%CE%B3%CE%B5%CE%AF%CE%BF%20%CE%9D.%20%CE%91%CF%81%CF%84%CE%AC%CE%BA%CE%B7%CF%82.jpg)
@@ -152,6 +154,11 @@
 
 ![image](https://github.com/MargaritaSamoutian/meowmission/blob/main/QR%20codes_2%CE%BF%20%CE%9D%CE%B7%CF%80%CE%B9%CE%B1%CE%B3%CF%89%CE%B3%CE%B5%CE%AF%CE%BF%20%CE%9D.%20%CE%91%CF%81%CF%84%CE%AC%CE%BA%CE%B7%CF%82.png)
 
+*Ηχητικά ντοκουμέντα*
+
+[**Ηχητικό ντοκουμέντο 1**](https://www.youtube.com/watch?v=oRoSYcX2KIk)
+
+[**Ηχητικό ντοκουμέντο 2**](https://www.youtube.com/watch?v=79o8kOnHBq4)
 
 *Φάση 5: Ανατροφοδότηση – Ο Ζωντανός Χάρτης*
 
